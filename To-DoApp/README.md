@@ -77,7 +77,7 @@ Call mom
 
 ## 🧑‍💻 Author
 
-**Abhishek Kumar**  
+Karan kumar 
 BCA Final Year | Oxford Business College  
 Internship Task - Elevate Lab (2025)
 
